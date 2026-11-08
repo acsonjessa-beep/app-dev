@@ -1,46 +1,36 @@
-# 🎬 My Favorite Series: Stranger&nbsp;Things
+# My Favorite Series: Stranger&nbsp;Things
 
-> *“Friends don't lie.”* — Eleven
+## About the Series
 
-## 📖 Overview
+Stranger&nbsp;Things is my favorite series. It is about a group of friends in Hawkins, Indiana.
 
-**Stranger&nbsp;Things** is my favorite series because it mixes *mystery*, **friendship**, and ***80s nostalgia*** in one story.
+One day, their friend Will&nbsp;Byers goes missing. While they try to find him, they meet a girl named Eleven who has powers. That is where the story starts.
 
-It is set in the small town of **Hawkins, Indiana**, where strange things start happening after a boy named Will&nbsp;Byers disappears.
+## Why I Like It
 
----
+I like this series because:
 
-## ⭐ Main Characters
+* It is *funny* and **exciting** at the same time
+* The friendship of the group feels real
+* I always want to know what will happen next
 
-| Character | Played By | Description |
-| :--- | :--- | :--- |
-| Eleven / Jane | Millie&nbsp;Bobby&nbsp;Brown | A girl with psychokinetic powers |
-| Mike&nbsp;Wheeler | Finn&nbsp;Wolfhard | The leader of the group |
-| Dustin&nbsp;Henderson | Gaten&nbsp;Matarazzo | The funny and smart one |
-| Lucas&nbsp;Sinclair | Caleb&nbsp;McLaughlin | The brave and loyal friend |
-| Will&nbsp;Byers | Noah&nbsp;Schnapp | The boy who went missing |
+> My favorite line is "Friends don't lie."
 
-## ❤️ Why I Love It
+## Main Characters
 
-1. The **friendship** between the kids feels real
-2. The *mystery* keeps me watching every episode
-3. The **music and 80s vibe** are so cool
-4. The Upside Down is creepy but exciting
+* Eleven - A girl with powers
+* Mike&nbsp;Wheeler - The leader of the group
+* Dustin&nbsp;Henderson - The funny one
+* Lucas&nbsp;Sinclair - The brave one
+* Will&nbsp;Byers - The boy who went missing
 
-### My Favorite Moments
+## My Favorite Episodes
 
-- [x] Eleven saving her friends
-- [x] Dustin and Steve's friendship
-- [ ] Watching Season 5 when it comes out
+1. Season 1, Episode 1
+2. Season 2, Episode 9
+3. Season 4, Episode 7
 
-## 🔗 Learn More
-
-Check out the official page here: [Stranger&nbsp;Things on Netflix](https://www.netflix.com/title/80057281)
+You can watch it here: [Stranger&nbsp;Things on Netflix](https://www.netflix.com/title/80057281)
 
 ---
-
-### 💬 My Favorite Quote
-
-> “Mornings are for coffee and contemplation.” — Jim&nbsp;Hopper
-
-**Made with ❤️ by Jessa&nbsp;Mae&nbsp;Acson**
+Made by Jessa&nbsp;Mae&nbsp;Acson
